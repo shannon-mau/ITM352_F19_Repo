@@ -3,5 +3,5 @@ Task 1
 
 Hi Ari!
 
-Shannon here. I love you.
-I've lived with you forever.
+Shannon here. You're my best friend.
+Thanks for being my roommate.
